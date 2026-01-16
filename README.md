@@ -40,7 +40,7 @@ I’m committed to staying updated with the latest trends, experimenting with ne
 ## 💬 Let's Connect!
 
 📎 **LinkedIn:** [Anoli Mane](https://www.linkedin.com/in/anoli-mane-075725329)  
-📧 **Email:** *[Add your professional email here]*  
+📧 **Email:** *anolim1205@gmail.com*  
 🌐 **GitHub:** [Your GitHub Profile Link](https://github.com/your-username)  
 
 ---
